@@ -1,2 +1,2 @@
 # i'm zayyan ✌️
-A 15-year-old developer with a passion for technology and a love for bringing ideas to life through code. Learn more here: (https://www.zayyan.cc/)
+A 15-year-old software developer with a passion for technology and I enjoy bringing the wildest ideas to life through code. Learn more here: (https://www.zayyan.cc/)
